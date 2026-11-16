@@ -16,7 +16,7 @@ Si **Misaki Ayuzawa** ang unang babaeng student council president ng Seika High,
 - Nakakatawa at nakakakilig ang kwento
 - Malakas at astig ang bidang si Misaki
 - Ang ganda ng chemistry nina Misaki at Usui
-- Masayang panoorin kasama ang barkada
+
 
 ### Main Cast
 | Character | Japanese VA | English VA |
