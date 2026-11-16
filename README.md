@@ -1,6 +1,3 @@
-# -app-dev
-My first repository
-
 <img width="1000" height="1478" alt="MaidSama" src="https://github.com/user-attachments/assets/8a444b81-c398-4d67-a57a-902c5df52c95" />
 
 ## My Favorite Anime: *Kaichou wa Maid-sama!* (2010)
